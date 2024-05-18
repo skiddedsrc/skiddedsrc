@@ -1,3 +1,4 @@
+<---- piss off skids i own u :wink: ----->
 ★━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━★
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com/?font=JetBrains+Mono&pause=1000&color=FFFFF&random=false&width=435&lines=%F0%9F%91%8B%20Hello!%20I%20am%20ariez)](https://ariez.lol/)  
